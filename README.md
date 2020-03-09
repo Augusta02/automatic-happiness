@@ -1,1 +1,1 @@
-# automatic-happiness
+# automatic-happiness is very strange and unconventional lady. she loves to make life more beautiful when around people. Also willing to learn as much as possible, she is pratically a sponge who trys to soak up as much knowldege as possible. She loves ro travel alot, have intelligent debates and wants to be a philaatrophist in an way possible. Making the world better motto in life.
